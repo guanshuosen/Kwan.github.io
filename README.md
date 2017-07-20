@@ -1,3 +1,4 @@
-## Github-io Pages
+## Guan's Pages
+### “像外行一样思考，像专家一样实践。”
 
 
